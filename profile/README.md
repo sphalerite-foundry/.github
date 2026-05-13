@@ -1,3 +1,3 @@
 - Creators of [ZINC](https://zinc.cash)
-- Follow us at [zinc_cash](https://x.com/zinc_cash)
+- Follow us at [@zinc_cash](https://x.com/zinc_cash)
 - Chat with us at [ZINC Miners](https://tg.zinc.cash)
